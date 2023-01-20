@@ -1,0 +1,2 @@
+# DER-BLOG-PESSOAL
+Exercício 
